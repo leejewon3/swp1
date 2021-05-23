@@ -1,2 +1,2 @@
 20213056 leejewon3
-Kookmin Unib. SW
+Kookmin Unib. SW dept.
